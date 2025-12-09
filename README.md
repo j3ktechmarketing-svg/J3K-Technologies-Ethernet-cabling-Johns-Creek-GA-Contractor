@@ -43,7 +43,7 @@ Our certified engineers install:
 - Fiber patch panels  
 - ODF termination solutions  
 
-Businesses seeking premium performance can explore more about our fiber solutions through our anchor text link: [Fiber optic cabling Johns Creek GA](https://www.j3ktech.com/services/structured-cabling/).
+Businesses seeking premium performance can explore more about our fiber solutions: [Fiber optic cabling Johns Creek GA](https://www.j3ktech.com/services/structured-cabling/).
 
 Fiber solutions support modern IT needs, cloud migrations, and mission-critical operations, making them essential for fast-growing organizations in Johns Creek GA.
 
